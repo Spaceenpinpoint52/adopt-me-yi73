@@ -1,4 +1,4 @@
-#  
+#  adopt me underground Scripts is the best adopt me Script, featuring auto-heal and undetectable. Safe and powerful for all your needs.
 
 
 
